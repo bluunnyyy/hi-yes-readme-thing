@@ -19,3 +19,9 @@ alzo here some stuff you need to know! :
 <img width="1280" height="800" alt="Screenshot_20251126-230901" src="https://github.com/user-attachments/assets/419b243b-9f2c-4889-b45e-8ab9e68dc0d7" />
 
 > KIM IS GAY
+
+-> im always with kim  ok? ok
+- im also a multifandom/shipper person! 
+- i love christmas
+-  I LOVE ROBLOX ARGS AND MY PFP IS BRANDONWORKS OKAAYY!!!!!!!
+> guess who made the pfp...... 
