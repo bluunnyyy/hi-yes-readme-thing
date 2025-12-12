@@ -28,3 +28,7 @@ alzo here some stuff you need to know! :
 -  I LOVE ROBLOX ARGS AND MY PFP IS BRANDONWORKS OKAAYY!!!!!!! 
 > guess who made the pfp...... !
 
+
+ -> i also love kevin spencer.... 
+ ![kevin-kevin-spencer](https://github.com/user-attachments/assets/be9e5e9e-423e-49b6-ae1a-3666c856a5a1)
+
