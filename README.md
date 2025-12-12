@@ -25,5 +25,6 @@ alzo here some stuff you need to know! :
 - im also a multifandom/shipper person! 
 - i love christmas
 -  I LOVE ROBLOX ARGS AND MY PFP IS BRANDONWORKS OKAAYY!!!!!!!
-> guess who made the pfp...... 
-![endzone-law-of-talos](https://github.com/user-attachments/assets/4790abf8-8f81-4df9-9019-572fb30b3c8b)
+> guess who made the pfp......
+![kevin-spencer-kevin-spencer-show](https://github.com/user-attachments/assets/9d372cf6-198c-43f0-af84-ae9639f64d5d)
+
