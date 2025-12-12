@@ -1,3 +1,4 @@
+![endzone-law-of-talos](https://github.com/user-attachments/assets/8e159fde-1159-41f1-9cc1-ccc6cf34191e)
 # yelo germ here
 hi yes im creating a new one and i am sometimes busy. 
 ~ my kins arreee: 007n7 , unpleasent!!?!? 
@@ -25,3 +26,4 @@ alzo here some stuff you need to know! :
 - i love christmas
 -  I LOVE ROBLOX ARGS AND MY PFP IS BRANDONWORKS OKAAYY!!!!!!!
 > guess who made the pfp...... 
+![endzone-law-of-talos](https://github.com/user-attachments/assets/4790abf8-8f81-4df9-9019-572fb30b3c8b)
