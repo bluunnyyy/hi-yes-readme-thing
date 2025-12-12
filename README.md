@@ -1,3 +1,4 @@
+![brandonworks-ozolog1](https://github.com/user-attachments/assets/5401aa5b-f3f6-4e13-b975-647ffadf9bd1)
 
 # yelo germ here
 hi yes im creating a new one and i am sometimes busy. 
@@ -24,6 +25,6 @@ alzo here some stuff you need to know! :
 -> im always with kim  ok? ok
 - im also a multifandom/shipper person! 
 - i love christmas
--  I LOVE ROBLOX ARGS AND MY PFP IS BRANDONWORKS OKAAYY!!!!!!!
-> guess who made the pfp...... ![brandonworks-ozolog1](https://github.com/user-attachments/assets/f118df72-850a-42cc-bf20-ad4e67227dc0)
+-  I LOVE ROBLOX ARGS AND MY PFP IS BRANDONWORKS OKAAYY!!!!!!! 
+> guess who made the pfp...... !
 
