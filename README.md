@@ -25,6 +25,5 @@ alzo here some stuff you need to know! :
 - im also a multifandom/shipper person! 
 - i love christmas
 -  I LOVE ROBLOX ARGS AND MY PFP IS BRANDONWORKS OKAAYY!!!!!!!
-> guess who made the pfp......
-![kevin-spencer-kevin-spencer-show](https://github.com/user-attachments/assets/9d372cf6-198c-43f0-af84-ae9639f64d5d)
+> guess who made the pfp...... ![brandonworks-ozolog1](https://github.com/user-attachments/assets/f118df72-850a-42cc-bf20-ad4e67227dc0)
 
