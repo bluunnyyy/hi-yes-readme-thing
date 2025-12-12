@@ -30,5 +30,5 @@ alzo here some stuff you need to know! :
 
 
  
- ![kevin-kevin-spencer](https://github.com/user-attachments/assets/be9e5e9e-423e-49b6-ae1a-3666c856a5a1)
+ 
 
