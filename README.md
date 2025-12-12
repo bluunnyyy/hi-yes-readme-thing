@@ -1,4 +1,4 @@
-![endzone-law-of-talos](https://github.com/user-attachments/assets/8e159fde-1159-41f1-9cc1-ccc6cf34191e)
+
 # yelo germ here
 hi yes im creating a new one and i am sometimes busy. 
 ~ my kins arreee: 007n7 , unpleasent!!?!? 
