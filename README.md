@@ -1,10 +1,12 @@
 # yelo germ here
 hi yes im creating a new one and i am sometimes busy. 
 ~ my kins arreee: 007n7 , unpleasent!!?!? 
-~ ~ ~ ~ ~ ~ ~ 
+----------
 i am probably mean sometimes or not but I don't really mind if yu cuddle me 
 and YES i love matching 
-~ ~ ~ ~ ~ ~ ~ 
+
+
+
 
 hey kim bullies me trust!!!!! 
 
@@ -13,10 +15,7 @@ alzo here some stuff you need to know! :
 • 1 : i am not allowing people to boop me unless friends 
 • 2 : im also sometimes weird but I may always be silent after THAT 
 • 3 : IF im not talking plsspslos whisper me anytime if you want to say something to me and ill see ur whispers ok!! 
-• 4 : i get super uncomfortable sometimes 
-~ ~ ~ ~ ~ ~ ~ ^q^ 
-oh yez my fav friends are : 
-> kim!!!
-> sebby
-> greg
-> katie ( katie is my partner but its ok) 
+• 4 : i get super uncomfortable sometimes ^q^ 
+<img width="1280" height="800" alt="Screenshot_20251126-230901" src="https://github.com/user-attachments/assets/419b243b-9f2c-4889-b45e-8ab9e68dc0d7" />
+
+> KIM IS GAY
