@@ -1,6 +1,7 @@
 ![brandonworks-ozolog1](https://github.com/user-attachments/assets/5401aa5b-f3f6-4e13-b975-647ffadf9bd1)
 
-# yelo germ here
+# yelo germ here 
+
 hi yes im creating a new one and i am sometimes busy. 
 ~ my kins arreee: 007n7 , unpleasent!!?!? 
 ----------
