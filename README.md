@@ -27,7 +27,7 @@ alzo here some stuff you need to know! :
 - im also a multifandom/shipper person! 
 - i love roblox args .
 
-  >• ok..... bye..... 
+  >ok..... bye..... 
 
 
  
