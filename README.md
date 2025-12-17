@@ -25,9 +25,9 @@ alzo here some stuff you need to know! :
 
 -> im always with kim  ok? ok
 - im also a multifandom/shipper person! 
-- i love christmas
--  I LOVE ROBLOX ARGS AND MY PFP IS BRANDONWORKS OKAAYY!!!!!!! 
-> guess who made the pfp...... !
+- i love roblox args .
+
+  >• ok..... bye..... 
 
 
  
