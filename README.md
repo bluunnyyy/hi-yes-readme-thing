@@ -5,8 +5,7 @@
 hi yes im creating a new one and i am sometimes busy. 
 ~ my kins arreee: 007n7 , unpleasent!!?!? 
 ----------
-i am probably mean sometimes or not but I don't really mind if yu cuddle me 
-and YES i love matching 
+i am probably mean sometimes or and YES i love matching
 
 
 
