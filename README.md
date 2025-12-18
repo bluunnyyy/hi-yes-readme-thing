@@ -6,7 +6,7 @@
 
 
   - - - - - - - - - - - - - - - - - - - 
-  <img width="0.6" height="1001" alt="Untitled1770_20251218145953" src="https://github.com/user-attachments/assets/d52e70c3-4e5e-4e08-b85e-db646583d2e4" />
+  <img width="1006" height="1001" alt="Untitled1770_20251218145953" src="https://github.com/user-attachments/assets/d52e70c3-4e5e-4e08-b85e-db646583d2e4" />
 
 
 
