@@ -1,34 +1,7 @@
-![brandonworks-ozolog1](https://github.com/user-attachments/assets/5401aa5b-f3f6-4e13-b975-647ffadf9bd1)
+! 
 
-# yelo germ here 
+<img width="1006" height="1001" alt="Untitled1773_20251218155827" src="https://github.com/user-attachments/assets/c25c4aa3-a939-4c38-9f11-4cb180781cff" />
 
-hi yes im creating a new one and i am sometimes busy. 
-~ my kins arreee: 007n7 , unpleasent!!?!? 
-----------
-i am probably mean sometimes or and YES i love matching
+  "   <img width="1006" height="1001" alt="Untitled1772_20251218153510" src="https://github.com/user-attachments/assets/15ee2b4c-dbc8-47a7-8145-436dcf2f260f" />  " 
 
-
-
-
-hey kim bullies me trust!!!!! 
-
----------------> c+h are always accepted by the way
-alzo here some stuff you need to know! :
--• 1 : i am not allowing people to boop me unless friends 
--• 2 : im also sometimes weird but I may always be silent after THAT 
--• 3 : IF im not talking plsspslos whisper me anytime if you want to say something to me and ill see ur whispers ok!! 
--• 4 : i get super uncomfortable sometimes ^q^ 
-
-
-> KIM IS GAY
-
--> im always with kim  ok? ok
-- im also a multifandom/shipper person! 
-- i love roblox args .
-
-  >ok..... bye..... 
-
-
- 
- 
-
+---------------> c+h are always accepted btw  . 
