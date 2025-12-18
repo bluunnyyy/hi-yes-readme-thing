@@ -9,6 +9,10 @@
 
 
 
----------------> c+h are always accepted btw  . 
- always with kim !! 
--
+ ---------------> c+h are always accepted btw  . 
+ - always with kim !! 
+ - might be pissed if i get booped so sorryz if im rude.. 
+
+
+                        ![brandonworks-ozolog1](https://github.com/user-attachments/assets/181fe611-613b-4ebf-9b96-98c34002eb8e)
+
