@@ -14,5 +14,5 @@
  - might be pissed if i get booped so sorryz if im rude.. 
 
 
-                        ![brandonworks-ozolog1](https://github.com/user-attachments/assets/181fe611-613b-4ebf-9b96-98c34002eb8e)
+![brandonworks-ozolog1](https://github.com/user-attachments/assets/56b4ea06-9285-46a8-8485-9bd335dbabed)
 
