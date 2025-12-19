@@ -1,9 +1,5 @@
-bluunnyyy/README.md
-
--------------
 
 !  .  .
-
 
 
 
@@ -28,4 +24,4 @@ bluunnyyy/README.md
  - might be pissed if i get booped so sorryz if im rude.. 
 
 
-- whisper if i am not answering   . 
+- whisper if i am l-
