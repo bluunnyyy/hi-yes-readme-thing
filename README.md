@@ -24,4 +24,4 @@
  - might be pissed if i get booped so sorryz if im rude.. 
 
 
-- whisper if i am l-
+- *whisper if i am not responding  .*
